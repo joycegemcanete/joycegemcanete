@@ -148,7 +148,7 @@ I’m especially interested in analytical applications involving:
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0A66C2?style=flat&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/joycegemcanete)
 
-📧 **Email:** your.email@example.com
+📧 **Email:** joycegemcanete@gmail.com
 
 ---
 
